@@ -10,4 +10,4 @@
 
 本平台每日更新最新国产a级毛片资源，内容涵盖激情剧情、制服诱惑、素人拍摄等多种题材，全部支持高清播放体验。用户可随时免费观看，无需注册、无广告跳转，所有影片页面均配有演员介绍与清晰度标签，便于快速选择所需内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/doi20250708/doi20250708 ）</span>
